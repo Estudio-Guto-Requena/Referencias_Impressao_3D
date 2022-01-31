@@ -172,6 +172,10 @@
 - [Site](https://www.linkedin.com/in/juliana-martinelli-13642373/?originalSubdomain=br)
 - Executiva da Inovahouse3D
 
+#### Luana de Jesus Pereira 
+- [Linkedin](https://www.linkedin.com/in/luana-de-jesus-pereira-68785554/?originalSubdomain=br) 
+- Atuação na fabricação digital de impressão 3D em concreto
+
 ## Outras Referencias Curiosas
 
 #### Casa de palha e Barro:
